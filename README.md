@@ -2,7 +2,7 @@
 
 ![KCSE_2013_Results Photo](http://www.davidwachira.tk/Personal%20Stuff/20%20Feb%202015/Candidate's%20KCSE%202013%20Results%20-%20KING'ORI%20TOM%20WANDERI(11200001007)%20-%20Wed%20Jan%2021%2016-29-21%20EAT%202015%20by%20David%20Wachira-II.png)
 
-![KCSE_2013_Results Photo 1](http://www.davidwachira.tk/%20CHEPLETING%20RUTH(11200002008)%20-%20Tue%20Dec%2030%2013-43-00%20EAT%202014%20by%20David%20Wachira-II.png)
+![KCSE_2013_Results Photo 1](http://www.davidwachira.tk/Personal%20Stuff/20%20Feb%202015/Candidate's%20KCSE%202013%20Results%20-%20CHEPLETING%20RUTH(11200002008)%20-%20Tue%20Dec%2030%2013-43-00%20EAT%202014%20by%20David%20Wachira-II.png)
 
 ![KCSE_2013_Results Photo 2](http://www.davidwachira.tk/Personal%20Stuff/20%20Feb%202015/KCSE%20Results%202013/Candidate's%20KCSE%202013%20Results%20-%20KABURI%20LAUREEN%20KEMUNTO(11200002001)%20-%20Tue%20Dec%2030%2013-43-31%20EAT%202014%20by%20David%20Wachira-II.png)
 
